@@ -1,4 +1,4 @@
-
+Get ahead in rivals with premium rivals Script, featuring no clip and auto-farm. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
